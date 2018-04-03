@@ -1,5 +1,7 @@
 # Books I've Read
 
+This is where I keep brief notes on books I've read, starting April 2018. Occasionally I go back to my Kindle highlights and add older books, too.
+
 ## Table of Contents
 
 ### A
